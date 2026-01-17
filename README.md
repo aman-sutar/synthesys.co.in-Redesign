@@ -1,1 +1,0 @@
-# synthesys.co.in-Redesign
